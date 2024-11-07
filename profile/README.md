@@ -13,7 +13,7 @@
 
 ## [Play Colorbox Mustard Games!](https://colorboxmustard.online/)
 
-## [Play Sprunked Games!](https://sprunkedgame.online/
+## [Play Sprunked Games!](https://sprunkedgame.online/)
 
 ## Introduction
 
